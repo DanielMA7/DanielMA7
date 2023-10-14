@@ -1,9 +1,5 @@
 ### Hi there 👋
 
-![202310142000](https://github.com/DanielMA7/DanielMA7/assets/113857314/020b46e1-4447-4413-b0f3-be73377ee749)
-
-
-
 
 
 <!--
