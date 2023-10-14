@@ -1,7 +1,8 @@
 ### Hi there 👋
 
+![Search-bar- remix](https://github.com/DanielMA7/DanielMA7/assets/113857314/39f22cb0-e044-459a-9ede-e56271e0a232)
 
-https://github.com/DanielMA7/DanielMA7/assets/113857314/26852c0b-5b10-425c-a917-c3a0cdc4e8dc
+
 
 
 <!--
